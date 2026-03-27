@@ -1,1 +1,0 @@
-# VibeCoding2Sarjstyn
